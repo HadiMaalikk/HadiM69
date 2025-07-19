@@ -1,6 +1,6 @@
 ⚡ Hi, I’m @HadiM69 
 - 📫 How to reach me ⤵️
- Hadimaliyakkal6@gmail.com
+ Hadimaliyakkal2@gmail.com
 
 
 <!---
